@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kanakue
+- 👋 Hi, I’m @kanakuer
 - 👀 I’m interested in Anahuac Culture
 - 🌱 I’m currently learning Anahuac Culture
 - 💞️ I’m looking to collaborate on ...
